@@ -2,9 +2,9 @@
 
 ## Purpose
 
-Live streaming the process of writing a feature length horror screenplay. This starts at zero. There is no work done in advance. I'll be working through from nothing at all to a first draft:
+Live streaming the process of writing a feature length horror screenplay. This starts at zero. There is no work done in advance. I'll be working through from nothing at all to a first draft.
 
-* working out constraints (subgenre, cast size, settings/locations)
+* determining constraints (subgenre, cast size, settings/locations)
 * collecting and fleshing out ideas
 * building an outline
 * writing a first draft
