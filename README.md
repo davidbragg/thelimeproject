@@ -15,6 +15,10 @@ This will largely be a silent process. Unless I have specific reasons to break o
 
 The entire process will be streamed live through Twitch over the course of three months from January 1st to March 31st, 2020.
 
+## Wednesday, November 27, 2019 
+
+Project starts January 1st, 2020.
+
 ## Tools
 
 In an effort to keep the tools as minimal as possible, all writing is performed entirely in vim. In this case, vim via Ubuntu through Windows Subsystem for Linux. 
