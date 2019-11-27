@@ -2,7 +2,9 @@
 
 ## Purpose
 
-Live streaming the process of writing a feature length horror screenplay. This starts at zero. There is no work done in advance. I'll be working through from nothing at all to a first draft.
+Live streaming the process of writing a feature length horror screenplay. This starts from zero on January 1st, 2020. No work has been done in advance. 
+
+I'll be working through from nothing at all to a first draft.
 
 * determining constraints (subgenre, cast size, settings/locations)
 * collecting and fleshing out ideas
@@ -15,15 +17,10 @@ The entire process will be streamed live through Twitch over the course of three
 
 ## Tools
 
-All work is done in Visual Studio Code. Notes are written in Markdown. The screenplay is written in Fountain.
+In an effort to keep the tools as minimal as possible, all writing is performed entirely in vim. In this case, vim via Ubuntu through Windows Subsystem for Linux. 
 
-### Visual Studio Code Extensions
-
-* Better Fountain
-* Markdown All in One
-* Spell Right
-* vscode-pdf
-* Word Count
+All notes are written in Markdown.
+The screenplay is written in Fountain.
 
 ## Social
 
