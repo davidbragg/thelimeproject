@@ -33,8 +33,8 @@ In an effort to keep the tools as minimal as possible, all writing is performed 
 
 All documents are written in either Markdown or Fountain syntax.
 
-Markdown: https://www.markdownguide.org
-Fountain: https://www.fountain.io
+* Markdown: https://www.markdownguide.org
+* Fountain: https://www.fountain.io
 
 
 ## Social
