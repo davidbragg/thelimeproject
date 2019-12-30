@@ -32,5 +32,5 @@ All documents are written in either Markdown or Fountain syntax.
 
 ## License
 
-The full content of this project (and resultant repository) are licnesed under a [Creative Commons Attribution-ShareAlike 4.0 International](https://creativecommons.org/licenses/by-sa/4.0/) license.
+The full content of this project (and resultant repository) are licensed under a [Creative Commons Attribution-ShareAlike 4.0 International](https://creativecommons.org/licenses/by-sa/4.0/) license.
 
