@@ -22,15 +22,15 @@ Working on figuring out my constraints for this project.
 
 In an effort to keep this as minimal as possible, all writing is done in Nvim under an Ubuntu 19.10 instance running in a virtual machine.
 
-All documents are written in either Markdown or Fountain syntax.
+All documents are written in either [Markdown](https://www.markdownguide.org/) or [Fountain](https://fountain.io/) syntax.
 
 ## Social
 
-* twitter: @heavyliftingind
-* instagram: @heavyliftingindustries
-* twitch: heavyliftingindustries
+* twitter: [@heavyliftingind](https://twitter.com/heavyliftingind)
+* instagram: [@heavyliftingindustries](https://www.instagram.com/heavyliftingindustries/)
+* twitch: [heavyliftingindustries](https://www.twitch.tv/heavyliftingindustries)
 
 ## License
 
-The full content of this project (and resultant repository) are licensed under a [Creative Commons Attribution-ShareAlike 4.0 International](https://creativecommons.org/licenses/by-sa/4.0/) license.
+The full content of this project (and resultant repository) are licensed under a Creative Commons [Attribution 4.0 International (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/) license.
 
