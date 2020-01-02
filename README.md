@@ -1,6 +1,6 @@
 # The Lime Project by David Bragg
 
-## Project
+## Project - github.com/davidbragg/thelimeproject
 
 Live streaming the process of writing a feature length horror screenplay. 
 
@@ -12,9 +12,9 @@ This is intended to be (mostly) a silent process. Unless I have specific reasons
 
 _All work on this project_ will be streamed live through Twitch over the course of three months from January 1st to March 31st, 2020.
 
-## January 1st, 2020
+## January 2nd, 2020
 
-Working on figuring out my constraints for this project.
+Fleshing out my 'family farm' concept for viability.
 
 ## Tools
 
