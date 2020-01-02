@@ -4,9 +4,7 @@
 
 Live streaming the process of writing a feature length horror screenplay. 
 
-Starting from zero on January 1st, 2020. 
-
-No work has been done in advance. 
+Starting from zero on January 1st, 2020. No work has been done in advance. 
 
 I'll be working from nothing at all through to a completed first draft.
 
@@ -20,7 +18,7 @@ Working on figuring out my constraints for this project.
 
 ## Tools
 
-In an effort to keep this as minimal as possible, all writing is done in Nvim under an Ubuntu 19.10 instance running in a virtual machine.
+In an effort to keep this as minimal as possible, all writing is done in NeoVim under an Ubuntu 19.10 instance running in a virtual machine.
 
 All documents are written in either [Markdown](https://www.markdownguide.org/) or [Fountain](https://fountain.io/) syntax.
 
