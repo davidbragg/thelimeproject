@@ -220,3 +220,154 @@ Despite not wanting to let her go, Mike is doing a really good job of pushing he
 This certainly implies that's not having an affair. She's in it all the way. All the way up until she simply can't be in it any longer. The point where she's forced away or needs to walk away to take care of herself.
 
 It is definitely coming to a head. I think she's at the point of needing to ask Mike point blank what he wants and what he wants to do. At this point, it's a bunch of mixed messages that all seem to imply he's done.
+
+# Thursday, January 02, 2020 
+
+## Basic Recap
+
+Not going to bother reading through what I wrote yesterday. Just need a quick recap of what I think I wrote yesterday.
+
+A couple in their late thirties. They'd always planned on having a family. They moved out to the middle of nowhere, onto a farm, with the intent of finally building that family. It wasn't until they were settled they realized it wasn't going to happen. The farm is dead. The marriage is dying. They're trapped where they are.
+
+So, this was intended to be a haunting type thing and I'm pretty sure I left off with Mike being isolated at the farm while Amy was off working a day job in a nearby town / city. Mike is some kind of visual artist, allowing him to work from home and continue further isolating from basically fucking everything.
+
+Then one day, a daughter just shows up. The kid that they didn't think they'd ever have just appears. I like this, but I'm absolutely unclear on what it actually means and where I go with it.
+
+Mike is pretty damaged at this point. I suspect he's probably got some issues with anxiety and he's self medicating. Manic tendencies, anxiety, and self medicating. He's not the most reliable person.
+
+Amy, for her part, is doing her best to survive while she's watching this person that's been the corner stone of her life for a decade and a half just fucking disintegrate.
+
+When a kid just shows up, why would she believe him about the kid even being there. It makes for something that I could play the two of them off of each other.
+
+You get this kid that shows up. Just all 'hi, daddy' out of the blue. And, yeah, Mike realizes it's probably not everything he wants it to be, but he's willing to hold onto that shred. You're falling apart, manic, and then this thing that you think is going to fix fucking everything just appears.
+
+He'd call Amy. That's for sure.
+
+He calls Amy and brings her home from work. He can't explain. He's super off kilter, but he knows that he needs her home. She needs to see *something*.
+
+I like the idea that the kid pits them against each other. If I'm going for a haunting type deal here, then I could totally use the kid as the manifestation of the haunting. That sliver that drives the wedge to a terminal depth between them. 
+
+I could take this a couple directions. The most obvious being:
+
+1. Amy can't see the kid. Thinks Mike's lost his shit.
+2. They can each see the kid and they're being plotted against each other.
+
+## Does the kid only appear to one of them at a time initially?
+
+I think early on, this is probably the right way to go. However it's presented I think the kid does appear to both of them, and may even appear in full to both of them at the same time, but I think initially there is a gap between them. 
+
+Leads into some interesting possibilities. Mike calls Amy home from work. Manages to get her home with some vague, but insistent pleading. He's got this whole thing going on with the kid. Maybe so far as she's got a room and belongings. Like she's always been with them.
+
+That kicks back to the whole Mandela Effect / bubble universe thing I was considering previously. At least, it could be a possible explanation for Mike when he's trying to figure out what's goin on.
+
+Of course the idea of shunting into a parallel universe as bubble universes collapse into each makes more sense than Mike is just finally losing his shit. 
+
+Back on track. So, he's got this whole thing. This whole morning and all these bits of evidence that what he's seeing is really. Then Amy comes home and it all disappears.
+
+Play that off from the daughter toward Amy. The daughter warns Mike that Amy's not ready to be a part of her world yet / or maybe the reverse. Implementation is not really important at this point. Don't explain that right away though. Leave it open so Mike has the space to question his own sanity, but also to question how Amy's managed to ruin this.
+
+I don't like the idea of the kid appearing only to Mike for the entirety of the story. I think at some point it needs to bleed over into their general life for the pair of them. Especially if I'm locking them into the space during a storm.
+
+The initial shape of this that I'm seeing is really a question of 'what would you do for the things that you want?' Forcing them into a scenario where they have to choose. They can have the kid or they can have each other or they can have themselves? I'm not clear on how to best approach that at the moment.
+
+Kid appears and pits them against each other. That promise and allure of having the thing you always wanted, if it wasn't for that other person always standing in the way. 
+
+Depending on how I wanted to frame this I could leave as it's Mike's burden through out. Something he's willing to kill Amy over as it's gets deep enough into the story. Not showing overtly that the same thing has crepty into Amy as well. She's just way better at keeping it to herself.
+
+The competing interests of coupled parenting...
+
+### Is he really involved in his work or does he just not like interacting with people? (delivery person avoidance)
+
+By the time we get to him, Mike is really broken. He just wants to avoid reality. Mostly because reality isn't giving him anything that he wants. His desire to avoid basically everyone is completely rooted in this.
+
+It's not antisocial. It's a protection mechanism. If he can avoid the outside worl he can minimize the triggers that kick off his anxiety and his disappointment.
+
+He doesn't want to be reminded.
+
+## What does the daughter appearing actually mean?
+
+If I'm going with a proper haunting bit here then I'm looking at this as more of moment of weakness. I'm pushing toward the idea of a malevolent spirit, but what that isn't necessarily capable of physical actualization. So, whatever damage it does needs to be through influence.
+
+Their marriage is weak. It's about to fall apart. Individually, they're weak as well. They have the relationship burden, all their dead dreams, and the financial mountain they're buried under. If there is a weakest moment for them it is right now. 
+
+The incident is really about an opening. Where they can be manipulated and pressed into action that is not typical for them. It's about influence. 
+
+## Can I / should I use the weather to isolate them further? I like the idea of them being trapped out there because of a snow storm.
+
+I think I'm already there. Once shit really kicks off and they're kind of pushing against each other, then taking away those easy escape routes is necessary. 
+
+There's some interesting staging there that can be used in having the farm with the broken down old barn. Trying to escape. Getting into the car and not getting very far due to the storm. Then being forced to make a choice of what to do next.
+
+You can freeze to death out in the cold trying to make it to the nearest neighbour. You can stay in the vehicle, making yourself an easy target. You can head back to the house that you just escaped from. You can try the barn and hope for something that might help there.
+
+I mean, I don't think this is your typical barn. I think at some point they've converted it into a working space for Mike. This implies that a lot of the farming tools and materials would have been cleared out at some point. But that really only matters if they've moved it all out. There's a fair amount of room in there on the types of weapons that could be used if necessary. 
+
+## Their Marriage
+
+I feel like there's a relationship disconnect here that I haven't touched on before. Like there's something fundamental between them that doesn't really get touched on, but is a key driver of their relationship, its decay, and how things play out.
+
+Mike's unwillingness to deal with delivery people might just come down to the different types of lives that they each lead. Mike is bound up tight in creating things. Making things for little or nothing. Trying to nudge the fucking universe with what he can build or develop. Whereas Amy acquires. 
+
+It's not pathological. She just buys the things that she thinks she needs and has them delivered. Because convenience. It's largely the things that she needs are not very well focused or understood by Mike. So, when he sees all of these things coming it, it doesn't make sense to him. It's just wasted money.
+
+Trying to buy things in lieu of having a personality. 
+
+There's a deeply resentful state of being in there. He doesn't deal with the delivery guys because it's largely something he doesn't feel he should be supporting. The fact that some of those things get taken back and require Amy to have to drive into the nearest town to pick them up at a depot is half the reason. Taking that little bit of a perverse joy in being able to cause that issue while acting like it wasn't intentional.
+
+I swear, I was out in the barn working all day. How was I supposed to know. 
+
+And then she goes and buys a remote doorbell and he never bothers to set it up. So she sets it up. Then he flat out ignores it. That passive aggressive shithead coming up hard.
+
+## Viability
+
+I'm not super sure about this concept as it is right now. There's a core story there that I like, but everything else becomes event driven. I don't know that the basic concept is as strong as I would like it to be. Like, I don't even know the best way to drive this down to a paragraph, let alone a logline. 
+
+A childless couple in their 30s, their marriage winding down, suddenly find a miracle child that claims to have been with them for years. A malevolent entity that is working to splinter their relationship and destory them... blerg I don't fucking like this at all.
+
+A child shows up that claims to be theirs. The child then pits them against each other as they cling to that idea of having a child over having each other. 
+
+It's a very closed piece. 
+
+I think I need to try out some other options and come back to this idea down the road... 
+
+Which puts me back to square one.
+
+## New
+
+I like the idea of sticking with hauntings and isolation.
+
+What about culture isolation? Being within a new town. country, or culture. Somewhere that's just enough of a change that you're a complete outside and struggling to actually function at a basic level.
+
+So, you make it worse by drawing in. If the outside world isn't doing much to support you then might as well just keep to yourself. 
+
+I like the idea of being surrounded by people and still being completely alone. Like how you can walk through any major city and, for the most part, go the entire day without talking to another person.
+
+Then there's the opposite of that. Moving from a big city, where you're accustomed to having all that individual space. You move into a small town. The type of place that might have a block of busineses, maybe two, designated as the downtown.
+
+Suddenly you're surrounded by a bunch of people who have not only know each other their entire lives, but are protective and suspicious of the lives they've built up. 
+
+So, what happens when shit starts going down in this type of environment. Anything outside the norm starts pushing your further outside. That brand of outsider that everyone can see but you, well, that turns into a fucking beacon. So, you're doing your best to try and get along while feeling like everyone is just staring at you and quietly judging everything you do.
+
+There's a path. Quiet, but well to do, individual moves out of the city for the country. Toward small town living. Moving into a place without really putting any effort into figuring out what that place is like to begin with. Then just buying a place, sight unseen. Not realizing your buying the biggest and most expensive place in the town.
+
+You move in and you're living in the place that used to house the most hated person in town. 
+
+There's a ton of shit to mine in there.
+
+I think, moving along with this idea, that it's not a location based haunting. It's more about a personal haunting. Especially if you're just an individual trying to make it in this small town while not knowing anyone.
+
+Really, all you've got as a tether, is the person who works in the house. Not really a housekeeper, so much as someone who comes in a couple times a week and just makes sure that things are where they're supposed to be and the house keeps operating appropriately. That single point of connection to the community, but also that single point of information as well.
+
+If you felt there was something super fucky going on, your initial response would be that someone was fucking with you. When you've got this person in the parttime housekeeper it becomes a direction you can point your suspicion at.
+
+It's a goofy idea and I'd have to work at it some, but... The previous owner was someone with a fair amount of sway over the town. Someone who treated their power over the town much like a game. They'd allow things to ebb and flow and then occassionally throw a log jam in there, just to see what would happen. Eventually the town fought back. And did what?
+
+That I'm not sure about. 
+
+The kind of thing that leaves marks, that's for sure.
+
+I think if I'm following that down then I'm really looking at things like violence against the owners, something that would 'trigger' some kind of paranormal response. Or I'm looking at the town itself doing some culty shit to try and get some level of revenge.
+
+> You escape the circle by finding someone else to take your place.
+
+I'm not sure what that shit means just yet, but I like it and I'm going to try incorporating it into this idea going forward.
