@@ -221,7 +221,7 @@ This certainly implies that's not having an affair. She's in it all the way. All
 
 It is definitely coming to a head. I think she's at the point of needing to ask Mike point blank what he wants and what he wants to do. At this point, it's a bunch of mixed messages that all seem to imply he's done.
 
-# Thursday, January 02, 2020 
+#Fleshing out my 'family farm' concept for viability. Thursday, January 02, 2020 
 
 ## Basic Recap
 
@@ -371,3 +371,145 @@ I think if I'm following that down then I'm really looking at things like violen
 > You escape the circle by finding someone else to take your place.
 
 I'm not sure what that shit means just yet, but I like it and I'm going to try incorporating it into this idea going forward.
+
+# Friday, January 03, 2020 
+
+I think the basic concept of deciding my subgenre before I really dig into anything else is handicapping me here. I'm busy thinking about how to fit the location / people into the subgenre and it's forcing some patterned thinking that is kicking me into well tread territory, I suspect. 
+
+I'm going to take a little bit of a step back from that. I've still got a bunch of work to figure out what this project is actually going to be about. I can narrow it down a little bit more as I get more specific ideas to wrestle against.
+
+## The Small Town
+
+I think I left off yesterday with someone moving into a small town. Moving away from the city and finding a new home in a sleepy little place where everyone knows everyone else and it's easy to be isolated if you're outside of that group of people that have known each other their entire lives.
+
+Further complicating is that they moved into the only expensive house in town. More than likely a piece of property that has sat empty for quiet an amount of time. They don't really want to be living there, but they're doing what they're doing. Still some work to figure out motive for living there.
+
+I do suspect that they don't drive. The lifelong city dweller that has never had to drive for themselves. Either because they were in the city and it was pointless to drive or because anytime they were outside of that bubble there was someone to drive for them. I like that they're in this little town, separated from everyone else in the town, but unable to really escape from them.
+
+## Deliveries
+
+If you can't drive and you're used to being taken everywhere / having everything brought to you then moving to a small enough town would be a massive shock to the system. You ask for the delivery services and basically get told that unless you want to eat pizza for every meal you're going to have to get something for yourself. 
+
+Small enough town. There wouldn't be any public transit or even cabs. Which means learning to drive or walking to everything you need.
+
+That wouldn't be a problem, walking, until you realize that groceries are fucking heavy. Walk your ass all the way to grocery store. Sure, it's only fifteen minutes away, but you're not doing that shit every day. Not thinking, you get way more than you can reasonably carry for the walk back. 
+
+This turns into a 90 minute slog while basically being ignored by others when you ask for a hand. Making it worse by offering to pay for help.
+
+Of course, there's always gotta be that one person who is happy to help. Willing to give a hand. That lifeline in an otherwise passively hostile town.
+
+## The Molotov
+
+So, my protagonist lives in this relatively expensive house. At least in reference to the rest of the surrounding community. I think there's a decent scene in there where someone throws a molotov against the side of the building. Of course, they pick the wall that is mostly brick and it's not a terribly imposing molotov.
+
+They didn't aim for a window. Or the roof. Of the wooden deck. No, they went for the brick wall, where it was never going to burn in the first place.
+
+That's a whole lot of someone trying to send a message rather than actually trying to burn down the house.
+
+"I suspect that they were trying to send you a message. Or there were the most idiotic arsonists to ever live. In which case, I believe they're as likely to set themselves on fire as they are to successfully come back and set fire to your house."
+
+So, this is like a local cop? 
+
+Nah. This is an entire county that this cop needs to cover. So, she (apparently my protagonist is a she) comes out to find the side of her house on fire. Nothing major. She's able to quickly put it out with little more than a jub of water. Finding the glass in the grass from the broken bottle, she calls the police.
+
+Who then take almost a half an hour to get there. 
+
+This is just a tiny little police force, covering a large and low population county.
+
+When he gets there he naturally has to apologize for taking so long, but that's the way things work around here. Too few officers and too much land to cover. If you're lucky, we're in the area and can get to you within fifteen minutes. Others, depending on call volume, we might take a couple of hours.
+
+It's not the city, after all. 
+
+I feel like that's something that he feels the need to reiterate a couple times.
+
+As far as he's concerned, it's nothing to worry about. The chances are someone is trying to send a message. They want to make her feel uncomfortable and she is clearly uncomfortable. Seems they've succeeded.
+
+She wants more. She pushes back hard. There's broken glass left over from the molotov. There's gotta be something they can get from that.
+
+Of course, she's treating this more like a TV shows that any semblence of real life. It's not like they've got a forensics unit in their county. They have six officers, including the person she's talking to right now. Any work they need done like that, they have to package everything up and send it off to a lab to processed. Then that lab has to get through whatever came in front of their request. Then, usually after about five or six weeks, they'll get to the packaged they've sent in. Their glass from a molotov. And chances are they won't have anything terribly interesting to tell them.
+
+She's looking for a smoking gun, someone to blame. Some broken glass isn't going to do that. 
+
+The cop figures he's basically done and needs to keep moving on to the next call. [Calling protagonist Mary for simplicity] Mary pushes back again. That's it? They're not going to do anything?
+
+The least they can do is leave someone there over night to watch the place. What happens if they come back and aren't quiet as inept the second time around?
+
+The cop is completely dismissive at this point. Even if he wanted to leave someone to watch her place (and he doesn't) there isn't anyone to do so. With six people there are at any given time three people around. One of which is manning their station and the phones. Which leaves two.
+
+Sure, it's quiet and things general take care of themselves, but it's not the type of thing you tempt by posting one of two officers up to babysit.
+
+## The House
+
+I suspect that someone comes with the house. I think I commented on this yesterday, not going back to look at it. Like a housekeeper. I think it's someone who worked there previously. As part of the agreement to buy the property they agreed to multi year contract for the part time housekeeper as well. 
+
+It's definitely much bigger than a single person needs. The kind of place that you feel like it should be homey. Comforting. Instead it's all sharp angles and sterile white. Like it could be recast as high class sanitorium that only looks nice to ensure that wealthy benefactors of patients have no obvious, visual reason to relocate their family members. 
+
+I think the housekeeper might actually be part of the reason for that.
+
+Every time Mary does something to slowly make the house more of her own it is undone by the housekeeper. Perhaps another one of those provisions of the house. Or perhaps just one of the strong personal preferences of the housekeeper.
+
+Hm. That's interesting. There implies a strong connection between the housekeeper and the previous owner. A loyalty in the house as it was "meant to be". 
+
+I like that idea of peculiar behaviour. Like that's all Mary sees in the town's population, but she's completely unaware of her own little personality grumbles. It's difficult to see your own blindspots. This could be one of her's. 
+
+The house has history and secrets. As much as Mary is now part of the town, I think she's more part of the house. That's something worth following down to see where it goes.
+
+## Mary
+
+So, much like the last concept, I think Mary is some form of creative artist. Unlike the farm concept, I think it's much less important that Mary's medium is a visual one. I think it would be perfectly fine for Mary to be writer, despite how much I despise writers writing about writers. 
+
+A writer that no one wants to hear from anymore. They hit a stride and did something incredible that are absolutely just lightning strikes. And then it overplayed. That audience, the people that loved her, simply turned.
+
+That does add a little wrench of why the people in the town act how they do towards her. Even if reviled celebrity in the macro is still fucking celebrity in the micro. People do all kinds of shit when they get the slightest brush with anyone they consider to be "important". This is definitely something I'd need to think about if I were to follow this idea down. 
+
+I think she's in her late 40s. At the point where she feels to solidified in the person she is and will always be. There's little room in her own head for who else she's supposed to be except the writer she's always been. Just now no one is interested in her writing anymore. 
+
+She gave pretty much everything she had to being this person and then came out the other end not knowing how to be any one else... 
+
+I don't think she "gave up" being a mother or having a family. I think that type of thing was always an afterthought. An expectation that other people had for her. People largely filled a necessary role rather than one she sought out. It was based out of social obligation rather than individual need. The work was a convenient smoke screen over the fact that she couldn't fucking care less if she ever married or had children.
+
+This was an apparently line through all of her relationships. None of them ever survived a new book. Well, there's something new, but wholly unexpected. Author.
+
+Let's give her something big. Let's pretend she gave something like Harry Potter to the world. Something that was just a massive phenomenon. And it was welcomed and adored. It spawned massive empires. Not just her own. And then it was just like a star had been snuffed out.
+
+Nothing that came after it was picked up. It didn't matter what she wrote. How good it was. How within the boundaries or outside the boundaries she went. It all landed with a thud to the point that the only time anyone wanted to talke to her was about things related to that early smash hit. And those calls had dried up. 
+
+A ten year flash of early, unheard of success and then nothing. There was no plateau. No gradual drop off. Just a fucking plummet. 
+
+But she still has money and means. So, the "best decision" was just to get her out of the city. Give her a chance to reset, out of the limelight (not that any was shining on her anymore), and away from the people and patterns she was stuck in. Maybe a new environment and change of pace would be able to give her a new perspective and a line back in.
+
+I'm missing something here.
+
+She's done something that turned the average person against her. I'm not sure what the is just yet.
+
+## Who was the house's previous owner? Why did they leave?
+
+I think the leaving part is pretty obvious. They died. More than likely, they died in the house. And probably a pretty grimy ending as well. 
+
+It wasn't a choice for their leaving. It's just what ended up happening to them. Not that they didn't bring it on themselves.
+
+It's a small town. Everyone knows everything. Or, at least, they think they know everything. And when they don't absolutely know everything... Well, that's when the rumours start. 
+
+Richest man in town and also fairly reclusive. Much like Mary, he expected things to be brought to him. For a handful of people he was considered to be a very generous and compassionate man. He was giving and free with what he had. For the rest, he was a black box. A black box with a lot of rumours swirling around him.
+
+He was isolated and confrontational. He had zero qualms with treating his neighbours poorly if it suited his mood, which it always did. 
+
+There's something I'm not keying into just yet. There's something going on (has gone on) around either the previous home owner, the house itself, or the town and the people in it. There's a mystery there that I haven't quite figured out yet. Once I get a grip on that I think a lot of the other pieces are going to come together.
+
+There's more to figure out about this guy.
+
+## The helpful townsperson.
+
+Earlier in these notes I was talking about that one person in town who ends up being friendly and helpful. The person who helps her get her groceries back from the middle of town to her place. He might even be kind enough to drive her.
+
+"Get a bike. With a basket. Make an effort to come down to the store a couple times a week. You'll be fine."
+
+I think he's genuinely helpful. Not because there's any ulterior motive there or that I'm setting him up to actually be the bad guy. He's just a decent guy. Perhaps a little bit of a fanboy with a likely inappropriate crush. 
+
+Yeah. It's all kosher for 20 year and person in their late 40s to get it on, but it's not the norm. People still tilt their heads at this kind of thing, Especially for Mary, someone who has never felt particularly attractive and is feeling even less so on the tail end of her 40s to be getting attention from what she considers to be a kid. There's all kinds of weird there for her.
+
+It would help to drive a wedge in between her and him. The only really useful person. The only friendly person she's met in this little town. 
+
+It starts out fine and friendly. Maybe she has a twinge of something not right. Could even feed that a little bit. Set that seed of doubt that maybe he is a malicious actor. Then resolve it out to him just wanting to bone the woman whose books he read growing up. Given that she's not a terrible sexual person to begin with... Kinda gross. 
+
+Whatever it is, I just don't want to fall into that rut of setting them up to be the helpful person that turns out to be the bad guy. No bueno.
