@@ -8,11 +8,11 @@ I'll be working from nothing at all through to a completed first draft.
 
 This is intended to be a silent process. Unless I have specific reasons to turn on my mic, I will be spending all of my streaming time focused on actually writing. 
 
-_All work_ on this project will be streamed live through Twitch over the course of three months from January 1st to March 31st, 2020.
+_All work_ on this project will take place during Twitch live stream over the course of three months from January 1st to March 31st, 2020.
 
-## January 3rd, 2020
+## January 4th, 2020
 
-Continue working on the 'small town haunting' concept.
+Continue working on the 'small town' concept.
 
 ## Tools
 
