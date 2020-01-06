@@ -513,3 +513,170 @@ It would help to drive a wedge in between her and him. The only really useful pe
 It starts out fine and friendly. Maybe she has a twinge of something not right. Could even feed that a little bit. Set that seed of doubt that maybe he is a malicious actor. Then resolve it out to him just wanting to bone the woman whose books he read growing up. Given that she's not a terrible sexual person to begin with... Kinda gross. 
 
 Whatever it is, I just don't want to fall into that rut of setting them up to be the helpful person that turns out to be the bad guy. No bueno.
+
+# Sunday, January 05, 2020 
+
+Alright... I was pushing really aggressively toward doing a haunting / ghost story. I'm not 100% I want to actually do that. I'm not 100% that this story is that. 
+
+I'm not entirely sure what this story is just yet.
+
+## Basic Recap
+
+Washed up author moves out to a small town as she navigates the aggressive downward trajectory of her once brilliant career. She moves into a "one of these things is not like the others" type house. The community is very modest, financially, and this is the outlier mansion.
+
+She finds herself getting a very cold reception from the towns citizens and is also very isolated from basically all the life she's ever known.
+
+She's trapped in who she was, outsed from where she's always been. 
+
+## Mary
+
+I'm curious about what type of writer she is. There's a specific audience age crossing genre that she really needs to hit. I like the idea that whatever the superficial genre is, the hook of her series, the underlying core of it is mystery. It speaks to a personality that enjoys (or feels compelled) to create and solve puzzles. 
+
+There's a personality quirk in there. The default behaviour of idle hands. And I think that whatever that is it is something above and beyond the crossword puzzle. 
+
+I like the idea that she didn't lose favour, but she grew out of it. Something in the way that she approached her own craft. She eventually developed and grew to the point where the stories that were satisfying to her, that seemed obvious to her, were too complex for the audience. She become the victim of accusations of naval gazing.
+
+She didn't take this particularly well when she was challenged with it. The idea that she was getting too convoluted and was losing the plot, when the trail is there. It's obvious, but subtle, and often required putting together tangetial pieces together to generate new and relevant information. It was writing that expected your to work for it.
+
+It was in her response to the accusations of being too far up her own ass that she stepped over the line. The superstar author who lit the world on fire and then seemed to lose the plot. When people tried to warn here that she was straying too far from the path she lashed out. As far as the public was concerned, inappropriately and disproportionately so. It's so easy when they're not people to you. You can say whatever you want and not feel any shame.
+
+:character
+
+## Times
+
+"remind me again the review of your last book in the times?"
+"there was no review in the times."
+"exactly."
+
+:dialogue
+
+## Who is the house's previous owner?
+
+I know that there was a bit of mixed sentiment about him in the community. Also, apparently a 'him'.
+
+I think I've touched on this a little bit, but those close to him would have considered him charitable. Free with a gift and support. Financial, if necessary. 
+
+He wasn't the person that was going to throw hundreds of thousands of dollars at someone because they asked for it. But he was always happy to help people out. That manifest in being thoughtful about buying gifts appropriate to improving the lives or well being of those around him. Covering a car repair bill. Buying a replacement instrument (guitar?). This type of thing.
+
+But that also led to resentment. His favour fell on a small group of people in the community. Which meant those outside of his little circle were aware of his supposed generosity, but never recipient to it. You begin not only resenting the person for their charity, but also those who are benefitting from it. 
+
+"Yeah. Fuck him for making sure I can get to and from work."
+
+He was also fairly reclusive. Which only further added to the stories that were stirred up about him. Why was he so generous? Why was he generous with specific people? Why didn't he leave his house very often? Why was he never seen around town? 
+
+I feel like there are fairly standard answers for all of these and then the suspected reasons that were passed around as truth. The lore of the house on the hill. 
+
+That said, I wonder how much of the standard answers are actually factual. I think it would be helpful if the person(s) who knew him were happy to maintain the standard line, but the truth was somewhere outside of what anyone suspected.
+
+:character :dialogue
+
+## Style and Tone
+
+I realized something writing my last project. I don't really enjoy writing straight forward content. There's a part of me that really leans toward weird. Not super weird, but more than a little fucked up. And not in the torture porn / splatter type of fucked up.
+
+Ideally, if I go with this concept I'm currently working on, I feel like this should start out incredibly standard. It should feel like it's obvious what we're in for and how we should expect things to unfold. Then it very quickly goes surreal, almost dreamy. Dark folklore told through an acid trip going sideways.
+
+I want the circumstance and surroundings to go far enough outside of the expected boundaries that Mary starts questioning her sense of reality and sanity. 
+
+I think this works for me. She's not interested in companionship or family. She's a mystery writer at heart. A fairly high functioning one. At her core, she's a fairly cold logician. It's part of what's kept her out of strong attachments with most people. She can be abrasive when she feels she's cutting through the bullshit and getting right to the truth of things. 
+
+When that sense of unerring logic collides with things that simply can't be real things get interesting. 
+
+As far as that goes, I could still make it a haunting movie. I think there's room in there for a haunted house type thing. 
+
+## The Closet Gag
+
+As a writer, I suspect that a big part of her life is reading. Doubly so now that she's basically let go of being a writer. All that time is freed up. What do you do with it when you're used to spending all your time staring at words.
+
+One of the major parts of her life would be having a space where she could read in comfort. Given the size of the place, she would have quite a few choices. She would want something with a lot of natural light. In a fairly neutral, soft room. The type of place where she could bring in a comfortable piece of furniture or two and sit by the window.
+
+Once she's got that room I think there's a gag in there where the closet keeps opening. Something very early on.
+
+She's sitting there reading and the closet across the room, the door slowly opens a few inches with a creak. It's loud enough to get her attention and draw her out of her book.
+
+Perhaps not right away though. It opens with a creak. She ignores it. It opens a little more with a louder creak. 
+
+She puts her book down and walks over to the closet. She closes it and goes back to sit down.
+
+Before she can take a seat it happens again.
+
+She walks over and closes it. She stands in front of it, waiting for it to happen again. When it doesn't she shifts her weight back and forth from foot to foot. Taking bouncing steps forward and backward. Trying to pop it open again.
+
+It won't pop open.
+
+She goes back to her book. She reads a sentence or two and the door pops back open. 
+
+With a sigh, she puts her book door and heads over to the closet. Dragging one of the small pieces of furniture in the room over with her. 
+
+As she reaches for the door to push it closed it closes on its own. Just as her finger tips are about to touch the door.
+She puts her book down and walks over to the closet. She closes it and goes back to sit down.
+
+Before she can take a seat it happens again.
+
+She walks over and closes it. She stands in front of it, waiting for it to happen again. When it doesn't she shifts her weight back and forth from foot to foot. Taking bouncing steps forward and backward. Trying to pop it open again.
+
+It won't pop open.
+
+She goes back to her book. She reads a sentence or two and the door pops back open. 
+
+With a sigh, she puts her book door and heads over to the closet. Dragging one of the small pieces of furniture in the room over with her. 
+
+As she reaches for the door to push it closed it closes on its own. Just as her finger tips are about to touch the door.
+
+The dismissal: It's an old house. Shit changes with the change in temperature or humidity. Did you have the window open? On a hot, humid day. What did you expect.
+
+:scene :gag :character
+
+## Relationship Between Housekeeper and Previous Owner
+
+I think I've already touched on this, that the housekeeper is kept over from the previous owner. I like the idea of there being something in the will / estate, a proviso that the housekeeper would continue to be employed, by the estate, for the next 10 years or so. It would have to be written into the terms of the house sale as well. 
+
+That's not something I have to go to deeply into, I don't think. 
+
+I think the relationship between them was absolutely a fond, but platonic one. While the housekeeper was always around the house, it was never unclear about the employer/employee nature of their relationship.
+
+Despite this, it was always a warm relationship. The housekeeper understood that they were in the employ of this person, but actually felt that their employer gave a shit about them. They could talk as friends, even if it was clear that they were not peers. As long as business is taken care of there was always room for other things. 
+
+I think the previous owner ( Walter ) felt that he was largely taking care of the housekeeper, even though the housekeeper was doing quite a bit to help care for Walter. 
+
+It wasn't pity, but a willingness to help build up another person that may not get many chances elsewhere. In a small town, with no education, you're basically waiting tables (assuming the few restaurants aren't fully staffed up with family and friends) or serving coffee. Either way, you're making minimum wage with no hope of ever moving anywhere.
+
+That's what the situation essentially was for the housekeeper. It was a strong opportunity that they were absolutely not qualified for that brought them into the house. And sure, they were never really going to be able to move to something better, but Walter was good at keeping wages competitive and the work environment welcoming.
+
+This is starting to feel to me like a poorly considered mentoring situation. The person with the means, seeing someone they consider to be a scrappy person with the means to get at it hard, if only someone could help lift them up.
+
+Then, as they were getting to learn about each other, learning that they really didn't have it. They were missing something. Not intelligence or drive or savvy, but some combination of the three failing to come together. There was just somethinig there, intangible, that screamed it was never going to happen.
+
+Rather than finding that person to mentor, Walter found someone to help. By removing the doubt that comes with finanicial instability he could improve their life and allow them to follow whatever kept them happy. Even if that meant one day leaving the house.
+
+That wasn't what ended up happening. The housekeeper was more than happy where they were and they became a fixture in Walter's life.
+
+Walter's desire to ensure the housekeeper's continued stability and comfort is how the estate continuing to maintain their employment after Walter's death happened. 
+
+## What happened to the previous owner? 
+
+There's going to be a lot of work on here to figure it out, but I suspect that Walter died in the house. It's the kind of thing that seems inexplicable, but was given some banal write off and was forgotten about.
+
+Of course, as far as public record is concerned, it was absolutely something banal. But a few people close enough to the house and Walter would know that something else was there. 
+
+Naturally, whatever it was is tied to what's happening in the house for Mary. I think that implies that until I get a better handle on what is actually happening in the house I'm going to treat it as "the house" rather than any specific entity or goings on. 
+
+He was found somewhere he wasn't expected to be. 
+
+sidenote: the house was completely furnished when Mary moved in.
+
+Yeah, I think I may have moved on this one prematurely. Going to add it to the questions list again.
+
+## The Wardrobe Gag
+
+I really don't think this is right for this project, but I might as well write it done. I think it might help if she's claustrophobic as well. Keep her out of certain spaces in the house to begin with and sells the gag.
+
+It's a simple gag, really. Just muddling around in the night. Walking by a wardrobe and having it open and getting pulled in. The clothes (or something) yanking you inside and the doors slamming shut. 
+
+I don't give a shit if you're not claustrophobic. You're going to freak out in that situation. The sheer panic of being trapped and not being able to see what's got you. Finally tumble out and turn to face an attacker and there's nothing. It's just a wardrobe with some old clothes.
+
+I don't know. If that was me? I'd probably drag the fucker out on the driveway and set this shit on fire.
+
+Would be a good first introduction for her to the police if she did so.
+
+:gag :scene
