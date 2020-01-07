@@ -680,3 +680,85 @@ I don't know. If that was me? I'd probably drag the fucker out on the driveway a
 Would be a good first introduction for her to the police if she did so.
 
 :gag :scene
+
+# Monday, January 06, 2020 
+
+Fuck. I am late to getting to writing and my whole shit is just off at the moment. To the degree where I actually considered just skipping it. But I managed to stumble in and anyway.
+
+## Mary's Fall From Grace
+
+So, I've touched on this a little bit in previous notes. She was a famous writer. The household name type of writer, who had written a series that was essentially universally loved. And then she stumbled.
+
+For her, it was a natural progression. She had started writing something. She never expected it to go anywhere. In her mind, it was just something to write to get something down and out there. It was an absolute shock to her that it took off as well as it did.
+
+Part of that was because she felt it was too basic. It wasn't the calibre of writing that she was capable of. It was something she banged out to get it down. 
+
+I like the idea that it was just some stupid idea that couldn't shake. She was busy trying to write other things, but this goofy idea just kept coming up. 
+
+For her sensibilities, it was drek. The basic plot progression was far too linear and pedestrian for her. The protagonist insipidly virtuous. There was nothing in there that really spoke to either her sense of story or art. 
+
+But it wouldn't just go away.
+
+It was causing issues with other projects she was desperately trying to work on. Distracting her away as she would idly think about it.
+
+When she finally decided to write it she did so out of defeat. If she wasn't going to be able to work on projects that actually interested her, she thought the best thing that she could do was bang it out as fast as possible. Just grind out the fucking pages as much as possible.
+
+I suspect she probably had a couple books under her belt at this point. Enough that she had an agent. Someone who was checking up on her. Possibly even a pending book that already had a deal behind it. The kind of thing she'd gotten an advance for. 
+
+So, she took a couple weeks and just fucking hammered out pages as quickly as she possibly could. Then, when the agent and publisher came around looking for an update, she could apologize profusely. There was another jackass idea that need to get committed to page first. And now that it's done, she'd be able to get back on track with the project she was supposed to be working on.
+
+That should have been it. If it was going the way that she had expected it to, it would have been. Instead there was a level of interest from the agent. The publisher was just annoyed that they were already off schedule and now they were getting even further behind as Mary fucked off for two weeks to write something unrelated.
+
+I think this is where the agent gets some leverage from. The publisher is annoyed, sure, but the agent lies their ass off about it. Says the publisher is really pissed. They want to know why they put up an advance for Mary to go off and write something else unrelated. Her agent uses this as leverage to get Mary to give up the book she panic wrote. 
+
+After enough nagging and annoyance, Mary gave up the pages just to get some peace.
+
+Her agent went stupid for the book. It was the first time her agent had read anything and was happy with it. They'd sent back things saying they'd never work. Sent back things saying they needed major revisions. But this? This was some inspired shit. Fuck whatever she was working on. Her agent was going to be able to pivot the existing deal on to this.
+
+Mary was adamant that it wasn't meant to be out there. She was going to stay on her current project and that was that.
+
+So her agent did what any asshole would. They promised not to start any negotiations. And they stood by that. And also leaked the book to the publisher. This wasn't a negotiation. Just a simple enticement and forcing them to come to the table to make offers. Her agent technically kept their word.
+
+This started a landslide. Especially since the book ended with a lot of unresolved lines. There was no way to publish this book without also following it up. It was necessarily part of a series.
+
+Mary was firm in her resolve that it wasn't going to happen. Eventually they just pushed enough money across the table that she agreed. Just to be able to go back to what she was doing. The book would go out, with the expectation that it would be a hit, but go back to writing what you were working on previously.
+
+Mary goes back and continues working away at the book she gives a shit about. Time goes on and the book is a fucking landslide hit.
+
+The publisher no longer cares about the book in progress. They absolutely need the next book in the series. They're happy to eat the advance for the in progress book and pay handsomely for Mary to start on the second book in the series, with a deadline.
+
+Mary continues to push back. To the point where she is ready to completely sever ties with the publication house, until her agent intervenes. Her agent that has been with her for almost a decade and helped her every time she need help. Who was always there for her and her back.
+
+Her agent basically pushed away from the table. If Mary turned down the deal, actually turned down the deal and not just using it as leverage for a better deal, then her agent was gone. That was that.
+
+As much as Mary isn't a physical person, she's still a person and that little bit of human connection and being able to rely on something is important. There was an emotional tie that she didn't want to destroy.
+
+There was also the cold logic that she put behind everything. Any agent she picked up going forward would absolutely insist that Mary go ahead with continuing the series. They wouldn't be interested in representing anything but the series. They'd also have zero personal stake in her happiness and would want more money. This was the post hoc logic she was able to justify going back to doing the second book in the series. 
+
+She attempted to wrestle some control back on it. She made it more along the lines of how she believed it could be improved. Attempting to elevate it above the waterline left by the original book.
+
+The publisher rejected it. They considered it stylistically too much of a departure and too difficult to read for the core audience. Which, yeah. It was. It was a whole lot like the other books that Mary had written. The type of book she wanted to be writing now.
+
+It turned into a tug of war between the publisher and Mary. The publisher refusing to publish something that they knew wasn't in like with the original. While Mary kept trying to exert her will over the way the story was being told. The publisher just kept her to the grind stone. Rejection after rejection, with notes on what was needed to get the project on track.
+
+Mary was eventually brow beaten into providing what the publisher wanted, plus four more additional books.
+
+By the time it was all done she had given up a decade of her life to this thing that she didn't believe was of value and came to fucking hate. Once it was clear it was open season. She went deep and hard with what she actually felt was worthwhile writing. 
+
+What she came back up with was dense and heavily layered. It wasn't what her audience was expected. It also wasn't something most people were able to really grasp. There was too much expected from most readers. Her first post series release sold well, but was considered a broad disappointment. 
+
+Her second sold modestly, but was again panned.
+
+Her third barely sold at all.
+
+And, to be honest, for her it wasn't a terrible thing. She was fine with the books not selling appropriately. What she couldn't abide was the idea that she had somehow lost her touch. It was an audience hugrily gobbling up childish finger paintings and then getting angry when the artist then produced a fucking Botticelli.
+
+It was an angry discontentment that she allowed to slip. It came out more like a sarcastic apology that people who spent their entire lives sipping at commercials, with no attention spans were having difficulty with her work.
+
+This is what turned people against her. That she would essential mock her audience by implying they were simply too stupid to understand the importance of her work. 
+
+I mean, she wasn't wrong... But the true arrows. They tend to hurt the most.
+
+When she's confronted about The Times review on her latest book, she's absolutely incensed. Not because her latest wasn't review in The Times. But because the person who confronted her with this thought that they were clever in using it. A little dagger to slip in that turned out to be a blunt, wooden spoon. 
+
+Further evidence that what she said and how she felt about her audience was justified.

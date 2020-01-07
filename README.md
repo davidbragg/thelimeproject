@@ -10,9 +10,9 @@ This is intended to be a silent process. Unless I have specific reasons to turn 
 
 _All work_ on this project will take place during Twitch live stream over the course of three months from January 1st to March 31st, 2020.
 
-## Sunday, January 05, 2020 
+## Monday, January 06, 2020 
 
-Continue working on the 'small town' concept.
+Working on the 'small town house story'.
 
 ## Tools
 
