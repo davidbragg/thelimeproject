@@ -762,3 +762,40 @@ I mean, she wasn't wrong... But the true arrows. They tend to hurt the most.
 When she's confronted about The Times review on her latest book, she's absolutely incensed. Not because her latest wasn't review in The Times. But because the person who confronted her with this thought that they were clever in using it. A little dagger to slip in that turned out to be a blunt, wooden spoon. 
 
 Further evidence that what she said and how she felt about her audience was justified.
+
+# Monday, February 24, 2020
+
+It's been awhile, but I've found my own ass again and need to start working. The last time I was working on this I had a rough idea of something that I was working through, but I also knew that I was getting close to needing to explore other ideas. If for no other reason than to have options to choose from it was getting to be that time. With that in mind, I'm not going to bother going back through that old information and trying to pick it up at this time. Starting with a fresh idea.
+
+I don't really know what it is yet, but I've been mulling it over for a couple days pretty passively. I know that the parameters are pretty straightforward and simple.
+
+	* limited budget
+	* this means limit locations, cast, effects, and action
+	* ideally something I have the means to shoot
+
+I'm adding the qualification of "something I have the means to shoot" not because I'm looking to making this film. I'm not. That qualification absolutely pulls down the scope of what I can do and what I should be doing.
+
+I'd like to do something very stripped back. Possible with two or three characters, at most. Keep everything contained to a single location. Writing this with locations I have access to in mind. Or, on the outside, slightly better versions of what I have access to that might be reasonably available for rental.
+
+My initial thought is the isolated cabin in the woods. Something easily controlled and with little to no concern about outside interference through people or noise.
+
+I don't think it's my protagonist's place. Or even someone's that he knows. This is a new place to him. He simply stumbles upon it while fleeing. I'm not sure entirely what he's running from. Probably something illegal and violent. I think, ultimately, his conscience.
+
+I'd like to find a voice for this, before I drive too deep into it. It feels like a haunting style project where it's helpful to limit someone to a constrained environment. Given that I'm looking at a character who is likely on the run then the time frame constrains down as well.
+
+The cabin in the woods in the middle of winter. Isolated. More than being physically isolated, he's also socially isolated. Whatever he has done is illegal and also reprehensible. Whatever his support structure looked like before, it's gone now.
+
+That time frame is something I'm curious about. I don't want to ratchet it down to early, but I think a general sense of a time frame helps to narrow the scope a little.
+
+This is not his cabin and he's also on the run, potentially from multiple groups. This isn't a long term solution. While no one may know that he's gone into the woods, this isn't his place. He has no idea who it belongs to or when someone is coming back. It's also empty. There are no supplies. No food. It's a finite amount of time before he's forced out.
+
+That means I need an artifical reason for keeping him there. The weather is always a good option. Weather combined with people out looking for him and getting close is another option. Something to consider as I get further into this concept.
+
+I think I've got a cold opening visual. Just a guy trekking through the woods and coming up this cabin in the middle of the trees. A snow covered lot. Solar panels on the roof. He sees it and takes a look around. Everything around him is empty and still. There's no indication of others in the area. There's no smoke coming from the chimney.
+
+He walks up to the house and tries the door.
+It's unlocked and opens smoothly.
+
+He heads into the house. The lights turn on when he flicks the switch, but it's very cold. A potbelly stove centrally situated. He feeds it some wood and starts a fire before continuing through the rest of the house. Only to find there aren't any supplies.
+
+Calling it here for the day. Just a quick entry to knock the rust off.

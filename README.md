@@ -10,9 +10,9 @@ This is intended to be a silent process. Unless I have specific reasons to turn 
 
 _All work_ on this project will take place during Twitch live stream over the course of three months from January 1st to March 31st, 2020.
 
-## Monday, January 06, 2020 
+## Monday, February 24, 2020 
 
-Working on the 'small town house story'.
+Putting the previous concept to bed (for now). Working up a new concept from scratch as I continue to explore what works best for me.
 
 ## Tools
 
@@ -29,4 +29,3 @@ All documents are written in either [Markdown](https://www.markdownguide.org/) o
 ## License
 
 The full content of this project (and resultant repository) are licensed under a Creative Commons [Attribution 4.0 International (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/) license.
-
