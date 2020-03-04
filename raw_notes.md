@@ -765,6 +765,8 @@ Further evidence that what she said and how she felt about her audience was just
 
 # Monday, February 24, 2020
 
+## The Witch In The Woods
+
 It's been awhile, but I've found my own ass again and need to start working. The last time I was working on this I had a rough idea of something that I was working through, but I also knew that I was getting close to needing to explore other ideas. If for no other reason than to have options to choose from it was getting to be that time. With that in mind, I'm not going to bother going back through that old information and trying to pick it up at this time. Starting with a fresh idea.
 
 I don't really know what it is yet, but I've been mulling it over for a couple days pretty passively. I know that the parameters are pretty straightforward and simple.
@@ -799,3 +801,115 @@ It's unlocked and opens smoothly.
 He heads into the house. The lights turn on when he flicks the switch, but it's very cold. A potbelly stove centrally situated. He feeds it some wood and starts a fire before continuing through the rest of the house. Only to find there aren't any supplies.
 
 Calling it here for the day. Just a quick entry to knock the rust off.
+
+# Tuesday, March 03, 2020 
+
+## The Witch In The Woods 
+
+Continuing off (sort of) with where I left off. If nothing else, I need to be more consistent with getting some work done on this project.
+
+So. Dude shows up in the middle of nowhere and finds a cabin in the woods. It's empty and isolated. He needs to lay low. It seems perfect.
+
+The place has been essentially closed up for the winter. It's out in the middle of nowhere. These kinds of places are subject to being broken into fairly regularly if they're inhabited year round... mostly because people are fucking awful. So, the owners just leave the doors unlocked. No point in replacing whatever shit was stolen and needing to repair the door they kicked in.
+
+Solar panels on the roof. So long as they're not covered in snow they'll still work. You disconnect or turn off the system over the winter and you're just going to need to replace the batteries in the spring. So, he'll have power.
+
+I like the idea of a potbelly stove in the middle of the cabin that's used for heating the entire place. So, now he's got heat as well. There's room to make that as simple or complex as I need to.
+
+The big trouble is going to be water and food. Unless it's got a well there's basically zero chance it's going to have fresh water coming in otherwise. There might be some bottled water stored in there somewhere, but the chances of that are pretty low. More than likely they'd just shutdown any water they did have and drain the pipes for the winter.
+
+It's a minor point, but he'd have to find a way to get drinking water. 
+
+- [ ] Does boiling snow work well enough? 
+
+Something to figure out another day, when I care enough to verify it. I suspect it's perfectly fine, but I'd like to see what's actually out there about this. Moving forward under the assumption that he'll have enough water to not have to worry about it.
+
+That just leaves food.
+
+If this guy is running from something poorly prepared enough that his entire plan was to wander through the woods for a couple days he is likely going to be relying on whatever he can find. 
+
+This place is shutdown for the winter though. There wouldn't be anything fresh and they'd be pretty likely to clear out anything in there. No point in leave food for animals to get into or stuff that isn't going to be any good come spring anyway. 
+
+Maybe that's my in. There's a limited amount of food. Some dried goods that were missed when they cleared out the cabinets in the fall. I think I was looking at this as a haunting type thing. I didn't write it down, but I had **The Witch In The Woods** as a temp title in my head. This could be a haunting, but it could also be something else. It'll require some research to actually see if I can back it up or if it's just pure invention, but...
+
+He finds some type of dried cereal or some time of dried mix. Unknown to him, this dried food stuffs has some kind of mold or spores growing it. Some funky little nasty shit that sends him into a psychedelic trip. I'm not really pitting him against any kind of haunting or horror other than himself and his subconscience.
+
+I like this idea, so long as it doesn't run too heavy handed. The whole "look how clever IT"S A DRUG MOVIE!" kind of shit. 
+
+It gives me the room to both do cool little haunting gags and also dive directly into his personal history and the reasons for him being out in this cabin in the middle of nowhere. Based on the context of why he's out there I can then place an additional person or two out there. I think, somewhat reasonably, these could be people that he has killed. I'm fine with it either being directly or through action/inaction. Whether he killed them with his own hands or not, he's responsible. 
+
+It's a pretty straight forward path then:
+
+* walking through the woods
+* find the cabin
+* check the place out
+* find enough to use the place for a night or two
+* start a fire and have something to eat
+* shit starts going down
+
+I think it's reasonable that all of this is the first 15 pages. 20 might be stretching it a little bit. It would be ideal to keep all of this super tight. 
+
+The first little indications of things going sideways would be small and subtle. Reasonably mistaken for the outside world encroaching on his little safe space. He's been found and it's just a matter of time before he's taken down or killed. I guess it depends on who found him first.
+
+If I'm going the messy hallucinogenic route then I'd like for there to be a very distinct cut. There's three distinct periods. The first is the "real world". This is followed by a brief, tense sense of paranoia and the outside world pushing in. Then it's an abrupt cut to when the drugs kick in. From a ramping perspective I think it's when the disturbance moves from outside to inside and then to fully formed and in front of him.
+
+The next step naturally goes to why he's in the goddamn woods in the first place. The structure is basic enough that it's really going to hinge on that.
+
+* out in the woods
+* find a place
+* take shelter
+* outside world pushing in
+* something's inside the cabin
+* shit goes sideways
+* reveal what has happened and how it relates
+* contrition acheived
+* the appearance of escape
+* did that escape work
+
+It's jumping ahead a little bit, but the ending and resolution will be an important part of how these things stage out and should likely be an extension of why he's there in the first place. I really like the idea of events pushing him toward contrition. Doubly so if he sees himself as a hard motherfucker and justified in what he did. I works in that context that his drugged out subconscience is fucking with him.
+
+I also like the idea that anything that happens to him, any physical damage, is self inflicted.
+
+What I don't want to do is the cheesy shit where it looks like he's escaped, but nope. 
+
+For the sake of walking it through, there are a couple options here.
+
+He's simply trying to escape what he thinks is an entity. So, he feels trapped in the cabin, or maybe the woods. Escape in this context is just getting out of that space and being free of it. So the trap there is that he thinks he's out and ends up back where he was or the entity follows him.
+
+He's being tracked by the police, looking to arrest him. He manages to escape from the cabin. This can be on his own or with the help of the police. He surrenders to the cops. He wants to be saved and he's willing to face whatever he has to for that to happen.
+
+He's being tracked by not the police, looking to take out some vengeance on his ass. This can be partners, rivals, victims. I'm not concerned about the particulars at this moment. Similar situation to the cops here. They track him down and find this puddle of a fucking mess who is terrified out of his mind. They are let him be, because they can't do any worse to him, or they take him away and he's fine with it.
+
+I don't really like any of these resolutions. But it's worth having them noted.
+
+I think the police and not_police options also don't work well as they push against one of the basic constraints I had for this project: to keep the cast / budget extremely limited. The only way I could get away with it is by reusing those characters in both haunting segments and police/not_police segments. This could work and would be fine, but I'd need a compelling reason to go down this route to begin with. 
+
+I think the big question boils down to whether he survives or not. Given that my inclination is toward all of his injury being self inflicted the question turns to whether he kills himself or not. Given that he considers himself a hard man it would take something significant to push him to the point of suicide. He's not prone to sentimentality or fear. That would push into making things incredibly fucked up. The kind of shit that breaks someone.
+
+That's an interesting problem in itself. Then you push that up against an aggressive budget constraint and it becomes something else entirely. It's a hell of a challenge.
+
+Going ahead with **The Witch In The Woods** for the time being as it'll help me just to have something to call this. 
+
+I think the next focus is really who my character is. At least a broad sketch of him. 
+
+I'm leaning toward a career criminal who is somewhere in his 40s. Lean, with a prison build. He's spent a fair amount of years in a cell, but many more out. He's not an idiot, but he's impulsive. If he relied more heavily on his intelligence he might not have ever seen the inside of a cell. At the very least, not for very long. Instead, he got caught up in shit that he knew better not to fuck with.
+
+None of this was about other people. Not a woman or a childhood friend or a crew. It was more about opportunities that he knew to pass on, but couldn't turn away from the potential pay out. In other cases, it was about wanting something and trying to take the shortcut instead of being smart about it.
+
+He's a thief primarily. A thief who has no real qualms about doing whatever needs to be done if shit gets a little too hot or others involved get a little too fucking stupid.
+
+It's not just that he's a hard man. He prides himself on being a hard man. On being smart. On being smarter than emotion. It's his impulse that he can't control. His anger or rage or envy? Not a problem. But something he directly wants? Not so much. He'll go after that with everything he's got.
+
+It feels like he's always been that way. Even as a kid.
+
+It implies a kid that grew up in a working poor type of family. They weren't starving, but food wasn't always a given. It wasn't guaranteed that you'd be having dinner every night. And meals didn't always come out of a pay cheque. Sometimes they came from friends. Sometimes from the food bank. 
+
+When you can't afford guaranteed, regular food, everything else is even less likely. You grow up with nothing and you're tough enough or ballsy enough you just take whatever you want. And then get caught with it, take you licks (either from neighbourhood kids and their older siblings or your parents, whichever ones catch you), and try to be smarter about it next time. 
+
+I like that idea of scarcity as a driver. That largely smart kid who just can't push down his impulses because he has nothing. Has no idea when he's going to get anything. And if he's gonna have it, now is the opportunity. Take that opportunity while it's there. Who knows if you'll ever get that opportunity again.
+
+This all makes some implications about his parents. Either it's a single parent that raised him, only one working parent, or a fuckton of kids they can't afford. Alternatively, they could simply live in a basically dead community where all that's left local service jobs and there's only about half as many of those as there are people looking for them. Scarcity all over the place.
+
+Of course, his parents were largely absent. The psychology of scarcity hits everyone. His parents were busy drinking their misery away, which took a fair amount of money out of the pool. Working too many hours when they weren't drinking. Constantly worrying about the bills and the debts. Too busy looking at how they're going to get through tomorrow to look at the shit coming down the pipe next week or next month. 
+
+That leaves us with a smart, but impulsive little thief who's left to his own devices to take care of and entertain himself. Really the only time his parents get involved is when they have to discipline him. So, absent parents who only show up when shit's bad. That fits with my general idea of an individual that prides themselves of being self reliant and logically rigid, but also subject to impulse control.

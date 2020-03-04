@@ -8,15 +8,15 @@ I'll be working from nothing at all through to a completed first draft.
 
 This is intended to be a silent process. Unless I have specific reasons to turn on my mic, I will be spending all of my streaming time focused on actually writing. 
 
-_All work_ on this project will take place during Twitch live stream over the course of three months from January 1st to March 31st, 2020.
+_All work_ on this project will take place during Twitch live stream over the course of "however long it takes me to get shit done".
 
-## Monday, February 24, 2020 
+## Tuesday, March 03, 2020 
 
-Putting the previous concept to bed (for now). Working up a new concept from scratch as I continue to explore what works best for me.
+Working forward with the current idea I've been knocking around. Trying to figure out a reasonable concept for an isolation story.
 
 ## Tools
 
-In an effort to keep this as minimal as possible, all writing is done in NeoVim under an Ubuntu 19.10 instance running in a virtual machine.
+In an effort to keep this as minimal as possible, all writing is done in NeoVim under a Linux Mint 19.2 instance running in a virtual machine.
 
 All documents are written in either [Markdown](https://www.markdownguide.org/) or [Fountain](https://fountain.io/) syntax.
 
